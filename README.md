@@ -1,0 +1,1 @@
+Taminje International Limited provides general contracting services to clients who need reliable coordination and accountable execution. We focus on clear scope definition, efficient resource management, and disciplined project delivery from start to finish.
